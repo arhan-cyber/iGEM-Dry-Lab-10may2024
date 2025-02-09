@@ -104,5 +104,4 @@ Additional resources may be required. Your ability to find and use relevant refe
 ---
 
 **All the best!**  
-*(PS: We can tell when someone has just copy-pasted from ChatGPT 😉)*
 
